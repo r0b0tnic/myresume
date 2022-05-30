@@ -1,2 +1,2 @@
 # myresume
-My Resume for the Marketing &amp; Project Manager role at GitHub Social Impact
+My Resume for the Program Marketing Manager role at GitHub Education
